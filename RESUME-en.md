@@ -12,4 +12,4 @@ As expressed on my profile, I'm open to job opportunities, but also to exchange 
 
 Count on me!
 
-(<a href="https://www.linkedin.com/in/fabiana-goncalves-43b3a0174/">Link to my Linkedin</a>).
+(<a href="https://www.linkedin.com/in/fabiana-goncalves-43b3a0174/">Link to my LinkedIn</a>).
